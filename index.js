@@ -9,4 +9,4 @@
 
 
 
-// Bakytbek!
+// Bakytbek! mykty
