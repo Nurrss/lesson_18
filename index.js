@@ -10,3 +10,4 @@
 
 
 // Bakytbek! mykty
+// TarGu strong
