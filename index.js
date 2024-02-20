@@ -9,5 +9,4 @@
 // Yerlan
 
 
-// Bakytbek! mykty
-// TarGu strong
+// Bakytbek! mykty kjsdcbjkb
