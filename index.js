@@ -6,7 +6,7 @@
 // Azhar
 
 
-
+// Yerlan
 
 
 // Bakytbek! mykty
